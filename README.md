@@ -6,7 +6,7 @@
 - 500 ml melk
 - zout
 \
-BEREIDINGSWIJZE\
+### BEREIDINGSWIJZE
 - Meng in een kom de eieren, de bloem, melk en een snufje zout. 
 - Als alle klontjes zijn verdwenen, kunnen de pannenkoeken gebakken worden.
 - Verwarm een beetje boter of margarine in een pan. 
