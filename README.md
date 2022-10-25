@@ -1,5 +1,5 @@
 # Pannenkoeken recept
-![pannenkoeken](images.jpeg)
+![pannenkoeken](images.JPEG)
 ## BENODIGDHEDEN
 - 2 eieren
 - 250 gr bloem
