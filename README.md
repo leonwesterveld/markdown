@@ -17,5 +17,7 @@
 - Leg de pannenkoek op een bord en dek het bord af met een grote deksel. 
 - Bak zo de rest van de pannenkoeken. 
 - Vergeet niet om iedere keer een beetje extra boter of margarine in de pan te doen, voordat je een nieuwe pannenkoek bakt.
-
-
+\
+\
+\
+[bron naar website](https://www.lekkerensimpel.com/basisrecept-voor-pannenkoeken)
