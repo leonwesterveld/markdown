@@ -5,7 +5,7 @@
 - 250 gr bloem
 - 500 ml melk
 - zout
-\
+
 ### BEREIDINGSWIJZE
 - Meng in een kom de eieren, de bloem, melk en een snufje zout. 
 - Als alle klontjes zijn verdwenen, kunnen de pannenkoeken gebakken worden.
